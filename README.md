@@ -4,4 +4,4 @@
 
 ---
 
- ![alt text](/SWOT_Analysis.pdf)
+ ![alt text](/SWOT_Analysis.png)
