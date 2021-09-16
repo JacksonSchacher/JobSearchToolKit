@@ -10,6 +10,7 @@
 
 ![image](https://user-images.githubusercontent.com/84756850/133520112-9501311f-5a5f-4b1d-9a07-b0308004995b.png)
 ![image](https://user-images.githubusercontent.com/84756850/133520185-3b64564f-bb71-430a-a8ac-2ec940dcc966.png)
+![image](https://user-images.githubusercontent.com/84756850/133642454-a415f55d-a0aa-4364-a723-8065ffddff19.png)
 
 
 ## Personality Type
